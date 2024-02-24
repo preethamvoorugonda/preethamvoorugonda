@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning java
 - 💞️ I’m looking to collaborate on some esay projects
-- 📫 How to reach me 2303a51387@sru.edu.in
+- 📫 How to reach me preethamvoorugonda567@gmail.com
 - 😄 Pronouns: he/🤖
 - ⚡ Fun fact: its simple as life
 
